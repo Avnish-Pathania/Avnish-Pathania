@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **avnishpathania44@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tZQd2_SL1klrCYFa2xwFcQiyV6RpC9fw/view?usp=sharing](https://drive.google.com/file/d/1tZQd2_SL1klrCYFa2xwFcQiyV6RpC9fw/view?usp=sharing)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1tZQd2_SL1klrCYFa2xwFcQiyV6RpC9fw/view?usp=sharing](https://drive.google.com/file/d/1tZQd2_SL1klrCYFa2xwFcQiyV6RpC9fw/view?usp=sharing)](https://drive.google.com/file/d/1tT2h68jexm_Gfcjg4_dtRAMXlwUd6pnQ/view?usp=sharing)
 
 - ⚡ Fun fact **I AM MORE THAN FUN**
 
